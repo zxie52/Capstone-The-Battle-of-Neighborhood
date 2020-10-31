@@ -4,7 +4,7 @@
 
 # Main Questions:
 
-  It is well known that New York City is the center of midwest and food there is really good. As a Asian student nearby, I really like to take bus to Chinatown for a good meal on weekend. At this time, I want to use the knowledge I learned here to solve the following questions:
+  It is well known that New York City is the center of east coast and food there is really good. As a Asian student nearby, I really like to take bus to Chinatown for a good meal on weekend. At this time, I want to use the knowledge I learned here to solve the following questions:
  
  •  What is the best location to enjoy Aisan food in NYC? 
  
